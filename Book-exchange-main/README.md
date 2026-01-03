@@ -173,5 +173,5 @@ Open-source UI inspiration
 BEDUDURU HASINI
 Data Analyst | Power BI Developer
 
-📧 Email:likitha0612@gmail.com
+📧 Email:beduduruhasini@gmail.com
 🔗 LinkedIn: https://www.linkedin.com/in/beduduruhasini-2a74a3296
