@@ -174,4 +174,4 @@ BEDUDURU HASINI
 Data Analyst | Power BI Developer
 
 📧 Email:beduduruhasini@gmail.com
-🔗 LinkedIn: https://www.linkedin.com/in/beduduruhasini-2a74a3296
+🔗 LinkedIn: https://www.linkedin.com/in/beduduruhasini-560618295?
